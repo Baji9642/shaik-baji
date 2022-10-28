@@ -1,2 +1,0 @@
-# shaik-baji
-asg
